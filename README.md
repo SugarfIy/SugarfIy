@@ -5,7 +5,8 @@
 
 ![1000007406](https://github.com/user-attachments/assets/cc963cbf-dc79-4599-ae48-c9fb4ab62c83)
 
-### 🪼🦋 BYI : IM THE CEO OF JELLYFLY. I RESPECT IF YOU DONT LIKE IT, BUT PLEASE DONT TELL THE FACT YOU DONT LIKE IT, BECUASE I DONT NEED TO KNOW + DONT PISS ME OFF BY TELLING ME YOURE THE CEO OF THE SHIP OR I AM NOT!ㅤㅤ ㅤㅤㅤ
+### 🪼🦋 BYI : IM THE CEO OF JELLYFLY. I RESPECT IF YOU DONT LIKE IT, BUT PLEASE DONT TELL THE FACT YOU DONT LIKE IT, BECUASE I DONT NEED TO KNOW + DONT PISS ME OFF BY TELLING ME YOURE THE CEO OF THE SHIP OR I AM NOT!ㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
+[dni + int list](https://github.com/SugarfIy/if-you-wanna-int-) ✦ ︵
 
  ͜ ͜ ͜ ͜ ͜ ͜ ͜ ͜ ͜ ͜ ͜ ͜ ͜ ͜ ͜ ͜ ͜ ͜ ͜ ͜ ͜ ͜ ͜ ͜ ͜ ͜ ͜ ͜ ͜ ͜ ͜ ͜ ͜ ͜ ͜ ͜ ͜ ͜ ͜ ͜ ͜ ͜ ͜ ͜ ͜ ͜ ͜ ͜ ͜ ͜ ͜ ͜ ͜ ͜ ͜ ͜ ͜ ͜ ͜ ͜ ͜ ͜
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
