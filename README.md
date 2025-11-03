@@ -10,7 +10,7 @@
 
  ͜ ͜ ͜ ͜ ͜ ͜ ͜ ͜ ͜ ͜ ͜ ͜ ͜ ͜ ͜ ͜ ͜ ͜ ͜ ͜ ͜ ͜ ͜ ͜ ͜ ͜ ͜ ͜ ͜ ͜ ͜ ͜ ͜ ͜ ͜ ͜ ͜ ͜ ͜ ͜ ͜ ͜ ͜ ͜ ͜ ͜ ͜ ͜ ͜ ͜ ͜ ͜ ͜ ͜ ͜ ͜ ͜ ͜ ͜ ͜ ͜ ͜
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
-ㅤ![1000007736](https://github.com/user-attachments/assets/ddc12a74-5488-48c6-831b-2dc308066d33)
+![1000007736](https://github.com/user-attachments/assets/ddc12a74-5488-48c6-831b-2dc308066d33)
 ㅤㅤ
  ##### Everyone is welcome in the Garden of Delights. Among those who sought happiness in this paradise on Earthbread is a Cookie who smiles, looking at her wings that glisten brightly in the rays of the never-setting sun. Hailing from a land beyond the veil of fog, _Sugarfly Cookie, too, found her Joy in this place. Since then, she has dedicated herself to delivering Happiness to all beings less fortunate, comforting the sorrowful and healing the pained with a word and a touch as delicate as her beauty. But why does she work so hard in a place without hardship?_ Sugarfly Cookie answers gently, ***"There is nothing I wouldn't do to repay Eternal Sugar Cookie's boundless kindness."***
 
