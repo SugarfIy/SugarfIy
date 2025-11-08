@@ -1,4 +1,4 @@
-### ATA / PRNS.CC IS STILL A WIP!!
+### ATA / PRNS.CC IS STILL A WIP THIS IS AN ALT THOUGHT
 ## _“ I can fly again ! „_
 
 ![♡𝅄](https://komarev.com/ghpvc/?username=connieboolynski&color=9AC5F6&style=flat&label=(♡𝅄))
